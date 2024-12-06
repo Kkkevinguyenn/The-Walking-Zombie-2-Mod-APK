@@ -1,4 +1,4 @@
-# The Walking Zombie 2 Mod APK Unlimited Money No Cheat Detected Unduh Gratis Versi Terbaru Untuk Android
+# The Walking Zombie 2 Mod APK Unlimited Money No Cheat Detected Unduh Gratis Untuk Android
 
 ## The Walking Zombie 2 Mod APK: Petualangan Bertahan Hidup dari Zombie yang Mendebarkan
 
